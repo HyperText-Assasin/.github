@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-## 👋**A BRIEF INTRODUCTION OF WHO WE ARE**
+👋**A BRIEF INTRODUCTION OF WHO WE ARE**
 <br>
 <br>
 Hi there! I am The Blood Hound former CEO of HyperText Assasins, we are a non-profit organization that will later develop into a profit organization.
