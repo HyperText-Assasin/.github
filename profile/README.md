@@ -2,7 +2,6 @@
 
 👋**A BRIEF INTRODUCTION OF WHO WE ARE**
 <br>
-<br>
 Hi there! I am The Blood Hound former CEO of HyperText Assasins, we are a non-profit organization that will later develop into a profit organization.
 Our team includes Me and former COO, and the co-owner of this organization IceFly147. 
 <br>
